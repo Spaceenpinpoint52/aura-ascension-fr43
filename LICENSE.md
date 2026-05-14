@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with updated Script for aura ascension, the #1 Script. Includes instant win and teleport for unbeatable
 
 
 
